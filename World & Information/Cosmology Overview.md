@@ -1,4 +1,4 @@
-[ Return](The%20World%20of%20Myri'il%20)
+[ Return](index.md)
 
 These are the most well known planes currently in existence. There are certainly others, but these are either major Astral Dominions floating in the Astral Plane housing deities, are planes able to manifest due to an overwhelming power in the elemental chaos, allowing the elemental realms to exist, or are the planes parallel  and thus closest to the prime material plane. 
 
